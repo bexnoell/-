@@ -1,4 +1,4 @@
-BEX NOELL THOMPSON//
+# BEX NOELL THOMPSON//
 
 Video//
 Errantry (2024) In Progress; Fracture Zone (2024); A Visual Grammar of Black (2024)

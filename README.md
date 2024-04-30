@@ -1,7 +1,7 @@
 BEX NOELL THOMPSON//
 
 Video//
-Errantry (2024) [In Progress]; Fracture Zone (2024); A [Visual] Grammar of Black (2024)
+Errantry (2024) In Progress; Fracture Zone (2024); A Visual Grammar of Black (2024)
 
 Writing//
 The Quilt’s Song (2024); A Note on Tigray and Selective Empathy (2023); Canary’s Song (2023); Ritual (2023); From the Circle (2023); On the Responsibility of Reading (2023); Na Chainkua Reindorf is Up To No Good (2022); Fleeing from Sodom and Gomorrah (2022); Bronya (2022)
